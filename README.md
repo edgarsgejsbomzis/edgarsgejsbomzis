@@ -1,0 +1,13 @@
+- 👋 Hi, I’m edgarsgejsbomzis
+- 👀 I’m interested in .sucking cock..
+- 🌱 I’m currently learning about playing litrabol...
+- 💞️ I’m looking to collaborate on .andris dom..
+- 📫 How to reach me edgarsgejs@gmail.com...
+- 😄 Pronouns: im/gay...
+- ⚡ Fun fact: i have been gay my whole life
+- ...
+
+<!---
+edgarsgejsbomzis/edgarsgejsbomzis is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
